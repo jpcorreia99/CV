@@ -1,6 +1,6 @@
 # Curriculum Vitae
 
-Updated as of: 17/09/2021
+Updated as of: 28/09/2024
 
 ## Links
 
